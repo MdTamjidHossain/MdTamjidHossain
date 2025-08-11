@@ -15,8 +15,7 @@ Feel free to explore my repositories and connect with me!
 ---
 
 📫 **Contact me:**  
-[Your Email Here]  
-[LinkedIn / Twitter / Other links if you want]
+📧 Email: tamjid621@gmail.com
 
 ---
 
